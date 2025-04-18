@@ -261,3 +261,5 @@ US Unlocked专为国际用户设计，允许非美国居民获得美国虚拟信
 *请参阅各金融机构官方网站的[使用条款](https://wise.com/terms-and-conditions)以了解最新产品信息和区域可用性。本文仅供参考，不构成任何金融建议。*
 
 ---
+
+[虚拟信用卡是什么？好用的美国虚拟信用卡平台推荐](https://github.com/idowuokar201/xunixinyongka)
